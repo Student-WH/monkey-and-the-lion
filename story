@@ -8,3 +8,5 @@ A Rat- it could have used his sharp teeths to bite of the lions trap.
 A elephat think about it, that could have helped it.
 An and it could have helped it but no one litrally nobody 
 came forward.
+okay now i dont know what else to continue the story as because anyhow the monkey helped the lion which was in trouble.
+End of the story bye bye
